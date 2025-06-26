@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Aculpro
 - 👀 I’m interested in Cars
-- 🌱 I’m currently learning HTL
+- 🌱 I’m currently learning HTL (higher technical collage)
 - 💞️ I’m looking to collaborate on nothing right now
 - 📫 How to reach me: gruberluca1@gmail.com
 - 😄 Pronouns: he/him just the normal
